@@ -1,3 +1,8 @@
+dumbsh*t
+bomembath (likes furry pornography)
+tinika nicotine (the goated one)
+transgender midget dwarf furry peanut butter footjob pornography
+
 ### Hi there 👋
 
 <!--
